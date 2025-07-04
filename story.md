@@ -1,1 +1,3 @@
-Put your hardwork one day you will get suceed
+Put your hardwork daily one day you will get succeed.
+For Janani Perusu.
+By Me
